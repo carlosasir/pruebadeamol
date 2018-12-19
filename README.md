@@ -1,2 +1,0 @@
-# pruebadeamol
-pruebecita chingona
